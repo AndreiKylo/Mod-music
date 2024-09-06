@@ -1,1 +1,2 @@
 file:///storage/emulated/0/Download/StorySwap%20Undertale%20AU%20-%20Knifetroulse_160k.mp3
+Heya, I'm AndreiKylo, I don't know if you remember me but you taught me how to code in Austale! I was trying to contact you these days because I wanted to tell you how grateful I am, your coding help helped me ALOT and now I making very good battles. As I was saying I would like to contact you SW!_Chara_003. If you see this message thanks for reading and I hope we can get in contact. 
